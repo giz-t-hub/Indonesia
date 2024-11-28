@@ -31,7 +31,7 @@ Have something to add or change? Contact: Armin.Wagner@giz.de
   - <b> National Strategic Development Plan to Enhance Transport and Logistics connectivity in Indonesia </b>: https://www.unescap.org/sites/default/d8files/event-documents/2_National_Strategic_Developing_Plan_Indonesia.pdf
   - <b> 
 - General
-  - <b> LONG-TERM NATIONAL DEVELOPMENT PLAN OF 2005-2025 </b>: https://policy.asiapacificenergy.org/sites/default/files/LONG-TERM%20NATIONAL%20DEVELOPMENT%20PLAN%20OF%202005-2025%20%28EN%29.pdf
+  - <b> LONG-TERM NATIONAL DEVELOPMENT PLAN OF 2005-2025 </b>:https://policy.asiapacificenergy.org/sites/default/files/LONG-TERM%20NATIONAL%20DEVELOPMENT%20PLAN%20OF%202005-2025%20%28EN%29.pdf
   - <b> THE NATIONAL MEDIUM-TERM DEVELOPMENT PLAN FOR 2020-2024 </b>: https://perpustakaan.bappenas.go.id/e-library/file_upload/koleksi/migrasi-data-publikasi/file/RP_RKP/Narasi-RPJMN-2020-2024-versi-Bahasa-Inggris.pdf
   - <b> Indonesia 2045 </b>: https://policy.asiapacificenergy.org/sites/default/files/VISI%20Indonesia%202045%20%28Indonesia%20Vision%202045%292.pdf
   - <b> Master Plan Acceleration and Expansion of Indonesia Economic Development 2011-2025 </b>: https://www.google.de/url?sa=t&rct=j&q=&esrc=s&source=web&cd=&cad=rja&uact=8&ved=2ahUKEwim2-qZ7_yJAxXGcfEDHSY0Fl0QFnoECBMQAQ&url=https%3A%2F%2Fopenjicareport.jica.go.jp%2Fpdf%2F12083945_01.pdf&usg=AOvVaw3sxUzsavELN73UZLnm1ilG&opi=89978449
